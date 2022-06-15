@@ -1,2 +1,3 @@
-# binhbo12456.github.io
+# mrlexz.github.io 
 hello xjn ckao` cak pn nek ♥
+template src @binhbo12456
